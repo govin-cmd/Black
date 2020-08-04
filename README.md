@@ -1,3 +1,3 @@
-# Black
-Black's repo noe
+# Black sms bomber
+Just revenge to everyone
 
